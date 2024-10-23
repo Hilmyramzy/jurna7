@@ -9,6 +9,14 @@ Hilmy Syaddad Ramzy - 312210162
 Frans putra sinaga - 312210046 
 
 
+https://sinta.kemdikbud.go.id/journals/profile/4171
 
-![Screenshot (395)](https://github.com/user-attachments/assets/0722aba0-6716-48d4-a34c-ab14b1f7242a)
+
+
+
+![Screenshot (396)](https://github.com/user-attachments/assets/9c893b0d-7174-4d74-b1af-be043acdec3a)
+
+
+
+
 
